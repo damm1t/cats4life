@@ -5,4 +5,4 @@ From cats for cats
 * slfkjds
 * kjsdf
 * sdlkfjlkds
-* Donat_e_ **me plz** Sokolov
+* Donat**e me plz** Sokolov
